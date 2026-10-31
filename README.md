@@ -1,0 +1,1 @@
+# Multiverso-em-Colapso-mobile
